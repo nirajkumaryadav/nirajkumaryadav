@@ -1,4 +1,4 @@
-# Hi there, I'm Nky 👋  
+# Hi there, I'm Niraj Kumar Yadav 👋  
 
 🎓 **B.Tech Artificial Intelligence and Data Science Student**  
 🌱 **Aspiring Data Scientist and Software Engineer**  
